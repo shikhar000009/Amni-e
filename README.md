@@ -1,3 +1,3 @@
 # Amni-e
 
-Author - amni
+Author - Amniii
